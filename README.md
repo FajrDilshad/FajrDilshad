@@ -1,4 +1,4 @@
-# 👋 Hi, I'm Fajr Dilshad
+# Hey, I'm Fajr Dilshad!
 
 ### 🚀 App Developer | Graphic Designer | Photographer & Videographer | VR Explorer
 
